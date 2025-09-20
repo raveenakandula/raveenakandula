@@ -54,8 +54,8 @@
 
 ### 📫 Connect With Me
 
-- 📧 Email: [raveena.ishani3@gmail.com]  
-- 💼 LinkedIn: [www.linkedin.com/in/raveena-a2099537a]  
+- 📧 Email: [raveenakandula1999@gmail.com]  
+- 💼 LinkedIn: [http://www.linkedin.com/in/raveena-kandula-b69616359]  
 
 
 ---
